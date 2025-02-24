@@ -9,6 +9,6 @@ i'm a student who loves coding
 *   🌍  I stay in Nairobi
 *   ✉️  You can contact me at [devriesryan82@gmail.com](mailto:devriesryan82@gmail.com)
 *   🧠  I'm learning more on coding languages
-*   ⚡  im an nerd..., tellnoone### Skills 
+*   ⚡  im a nerd..., tellnoone### Skills 
 
                 
